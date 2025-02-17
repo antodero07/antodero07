@@ -3,8 +3,8 @@
 - 🌱 I’m currently learning how to Andrew Head
 - 💞️ I’m looking to collaborate on pornhub
 - 📫 How to reach me only fans
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- 😄 Pronouns: gay/frocios
+- ⚡ Fun fact: lingua blu come i cazzi
 
 <!---
 antodero07/antodero07 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
